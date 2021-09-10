@@ -42,3 +42,5 @@ CASIOのコンパクトデジタルカメラ、EX-FC100でのマルチモーシ�
 ![Multi-Motion_CASIO_EX-FC100_20](https://user-images.githubusercontent.com/20723919/108590185-80a49580-73a5-11eb-9982-c4d609a2b431.JPG)
 
 ![Multi-Motion_CASIO_EX-FC100_21](https://user-images.githubusercontent.com/20723919/108590186-813d2c00-73a5-11eb-9011-9a56a998f4c0.JPG)
+
+![Multi-Motion_CASIO_EX-FC100_22](https://user-images.githubusercontent.com/20723919/132886055-e786bd1e-db5d-4c93-9744-1f53938e5ce6.JPG)
